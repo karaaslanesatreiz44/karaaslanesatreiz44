@@ -1,6 +1,6 @@
 ### Hi 👋
 
-Hi, I'm Night. I was born in Turkish and live here. I started learning my language in the first program in 9th grade. My favorite languages Discord.JS Thank you for reading.
+Hi, I'm Night. I was born in Turkish and live here. I started learning my language in the first program in 8th grade. My favorite languages Discord.JS Thank you for reading.
 
 
 
